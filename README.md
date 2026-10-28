@@ -1,0 +1,1 @@
+# Diagnostikas-un-atskai-u-skriptu-izveidee
